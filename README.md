@@ -1,1 +1,1 @@
-# Investment-Thesis
+# Investment-Thesis: Wealth Distribution Dictates Markets
