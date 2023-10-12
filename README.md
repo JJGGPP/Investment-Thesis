@@ -1,1 +1,1 @@
-# Investment-Thesis: Wealth Distribution Dictates Markets
+# Investment-Thesis: Please read my investment thesis on why wealth distribution dictates market direction
